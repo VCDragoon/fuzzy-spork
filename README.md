@@ -1,5 +1,6 @@
 # fuzzy-spork
 For a book club
 type something out
-
-Hi there!
+Makin Changes
+Makin Copies
+Cawwwpies
